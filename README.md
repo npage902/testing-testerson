@@ -60,7 +60,7 @@ As the seasons changed and years passed, Grimble's garden became a sanctuary kno
            MM
 ```
 
-## Creepy Bloodshot Eye
+## Attempt At Creepy Bloodshot Eye (But It's Actually A Chicken)
 
 ```
               ,;~;,
